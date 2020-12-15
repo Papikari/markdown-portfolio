@@ -1,1 +1,1 @@
-https://www.instagram.com/waifu_training/
+[Instagram](https://www.instagram.com/waifu_training/)
